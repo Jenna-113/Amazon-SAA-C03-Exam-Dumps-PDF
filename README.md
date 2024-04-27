@@ -2,9 +2,9 @@
 
 Planning for the Amazon SAA-C03 Exam can be an overwhelming errand, yet with Dumps4solution's most recent test dumps, you can overcome it easily. Our group of specialists has fastidiously organized these dumps to guarantee they adjust impeccably with the most recent test schedule and question designs.
 
-##What sets our SAA-C03 dumps separated?
+# What sets our SAA-C03 dumps separated?
 
-**• 100 percent Passing Assurance:** We are so sure about the nature of our dumps that we offer a 100 percent passing assurance. On the off chance that you don't breeze through the test on your most memorable endeavor utilizing our materials, we'll discount your cash.
+**• 100% Passing Assurance:** We are so sure about the nature of our dumps that we offer a 100 percent passing assurance. On the off chance that you don't breeze through the test on your most memorable endeavor utilizing our materials, we'll discount your cash.
 
 **• Reasonable Practice Tests:** Our training tests are intended to emulate the genuine test, permitting you to get to know the organization and question types. This guarantees you're good to go and sure on test day.
 
